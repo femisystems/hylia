@@ -1,6 +1,7 @@
 ---
 layout: home
 title: 'Hi, I am Janet Ajewole'
+metaTitle: ''
 postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: ''
