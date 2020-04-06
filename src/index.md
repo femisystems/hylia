@@ -8,16 +8,10 @@ socialImage: ''
 ---
 Welcome on board, come right in.
 
-My name is **Janet Ajewole** fondly called *Jane.* i am a Nigerian and a Grace-filled Christian. I am obsessed humanitarian- as i have a profound passion for helping the less privileged and indigent kids, as well as single and struggling mother in the society. whenever i am opportune to, I volunteer for like Courses. In light of this, i am an active volunteer with *Do Good Charity Initiative* where i hold the post *of*  the team lead and social media manager.
+My name is **Janet Ajewole** fondly called *Jane -* a Nigerian and a grace-filled Christian. I'm an obsessed humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as a Team Lead and Social Media Manager for *Do Good Charity Initiative*.
 
-Well,  If i am asked where i see myself in the nearest future, without thinking, it definitely would be as content creator, creative writer, copy writer, digital marketer and a vlogger, which is part of reason i have created this personal space.
+My aspiration to hone my skills across different disciplines - Content Creation, Creative & Copy Writing, Digital Marketing and Vlogging - motivated me to create this blog to share my thoughts and progress. In this space, I will share useful nuggets, fun stuff and ideas that I find intriguing, inspirational and beneficial to my audience. I promise to make this worth your time.
 
-In this space, i would share my random thoughts and ideas which i think will be beneficial to YOU especially in that time you just need to get things off and be alone with your device, i promise to make you feel at home and safe. i hope you find this space pleasant, exciting and inspiring.
+I am super glad to have you be a part of my journey. Please know this: its a safe place here. So, feel free to share your thoughts, opinions and feedback via my email ([ajewoleglory@gmail.com](mailto:ajewoleglory@gmail.com)). You can also follow my pages on instagram and twitter @jane_vigour.
 
-I am super glad to have you be a part of my journey. please know this, its a safe place here.
-
-i am very much available to hear your feedback, please send me an email on *ajewoleglory@gmail.com.* You are also welcome to follow me on instagram and twitter *@jane_vigour.* 
-
-*With love,*
-
-*Jane.*
+*With love, Jane.*
