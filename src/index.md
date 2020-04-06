@@ -8,7 +8,7 @@ socialImage: ''
 ---
 Welcome on board, come right in.
 
-I am **Janet Ajewole** fondly called *Jane.* i am a Nigerian and a Grace-filled Christian. I am an obsessed humanitarian, as i have a profound passion for helping the less privileged and indigent kids, as well as single and struggling mother in the society. whenever i have the chance, i Volunteer for like Causes. Currently, i work as the team lead and social media manager of the *Do Good Charity Initiative.*
+My name is **Janet Ajewole** fondly called *Jane.* i am a Nigerian and a Grace-filled Christian. I am obsessed humanitarian- as i have a profound passion for helping the less privileged and indigent kids, as well as single and struggling mother in the society. whenever i am opportune to, I volunteer for like Courses. In light of this, i am an active volunteer with *Do Good Charity Initiative* where i hold the post *of*  the team lead and social media manager.
 
 Well,  If i am asked where i see myself in the nearest future, without thinking, it definitely would be as content creator, creative writer, copy writer, digital marketer and a vlogger, which is part of reason i have created this personal space.
 
