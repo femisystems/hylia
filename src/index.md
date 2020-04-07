@@ -12,6 +12,6 @@ My name is **Janet Ajewole** fondly called *Jane -* a Nigerian and a grace-fille
 
 My aspiration to hone my skills across different disciplines - Content Creation, Creative & Copy Writing, Digital Marketing and Vlogging - motivated me to create this blog to share my thoughts and progress. In this space, I will share useful nuggets, fun stuff and ideas that I find intriguing, inspirational and beneficial to my audience. I promise to make this worth your time.
 
-I am super glad to have you be a part of my journey. Please know this: its a safe place here. So, feel free to share your thoughts, opinions and feedback via my email ([ajewoleglory@gmail.com](mailto:ajewoleglory@gmail.com)). You can also follow my pages on instagram and twitter @jane_vigour.
+I am super glad to have you be a part of my journey. Please know this: its a safe place here. So, feel free to share your thoughts, opinions and feedback via my email ([ajewoleglory@gmail.com](mailto:ajewoleglory@gmail.com)). You can also follow my pages on instagram and twitter @JaneVigour.
 
 *With love, Jane.*
