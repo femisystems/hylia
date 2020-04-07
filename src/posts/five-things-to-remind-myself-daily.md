@@ -6,9 +6,9 @@ date: 2020-04-07T18:07:53.796Z
 tags:
   - DAILY ASSURANCE.
 ---
-You have to take charge of your life, You need to make sure every moment count;  even at your most vulnerable point, take charge of how you feel; listen to the moment, pay attention to it, and speak positive words.
+You have to take charge of your life, You need to make sure that every moment of it count;  even at your most vulnerable point, take charge of how you feel; listen to the mind, pay attention to what it says and speak positive words.
 
-In this post, i have listed out five important words to say to yourself everyday to help you stay charged, focused and reminded of the reasons you are here. So hold still and enjoy this moment.
+In this post, i have listed out five important words with biblical references to say to yourself everyday to help you stay charged, focused and reminded of the reasons you are here, and so hold still and enjoy this moment.
 
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
@@ -16,7 +16,7 @@ However, to make this very effective, please take a sample paper and write these
 
    *Genesis chapter 1 verses 7* 
 
-It is best that we always remind ourselves that God has not just created us in some kind of way, but has taken his time to create us in his own image and likeness. he has created us just as he is, and so "i am gods image". i represent god in earth. when we fully become aware of how much we represent god, then it makes us conscious of the fact that we are loved by Him.
+It is very important that we remind ourselves always that God has not just created us in some kind of way, but has taken time to create us in his own image and likeness. he has created us just as he is, and so -I am God's image. We fully represent Him on earth. The moment we become fully aware of how much we represent God, then it makes us very conscious of the fact that we are Loved by Him.
 
  **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**         
 
@@ -36,4 +36,8 @@ It is important to be aware daily that we- Gods creation are created to be a ble
 
 *"God has me created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".* 
 
-**4.**
+**4. I AM A CHILD OF LIGHT**
+
+*John 8 verses 12; John 9 verses 5*
+
+it is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness
