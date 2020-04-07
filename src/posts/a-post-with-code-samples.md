@@ -28,4 +28,4 @@ meditation is one thing that is helping me become conscious of every little deta
 
 **2. DEVOTION**
 
-Growing up in an African-christian home, we usually observe a family prayer in the morning, but i realized that this does not really count if i really want to have an intimate moment with God, and so i tried observing my own daily devotion in this order- wake up read my bible,
+personally, growing up in an African-christian home, we- my family, usually observe a family prayer in the morning, but i realized that this does not really count if i really want to have an intimate moment with God, and so i tried observing my own daily devotion in this order- wake up read my bible,
