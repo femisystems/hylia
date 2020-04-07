@@ -15,7 +15,7 @@ In this post, i have listed out five important words with biblical references to
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
 ### 1. I AM BEAUTIFULLY MADE IN GODS IMAGE
-_Genesis chapter 1 verses 7_
+[Genesis chapter 1 verses 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NIV)
 
 It is very important that we remind ourselves always that God has not just created us in some kind of way, but has taken time to create us in his own image and likeness. he has created us just as he is, and so -I am God's image. We fully represent Him on earth. The moment we become fully aware of how much we represent God, then it makes us very conscious of the fact that we are Loved by Him.
 
