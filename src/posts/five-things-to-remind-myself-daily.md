@@ -44,8 +44,8 @@ It is very necessary to become fully aware that there is a difference between li
 
 *"i am the solution to problems, i am that vibrant and important to the world, God the creator has made me the light".*
 
-Importantly, let the word of Christ as said  john 1 verses 9 be evident. 
+Importantly, let the Word of Christ as said  John 1 verses 9 be Evident. 
 
 > "John 1:9 The one who is the true light, who gives light to everyone, was coming into the world". *\[NLT]*
 
-**5.**
+**5. I AM VERY RICH IN CHRIST**
