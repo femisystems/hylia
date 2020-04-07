@@ -24,8 +24,14 @@ saying these words with actions will make us fully take charge of the present si
 
 meditation for me is that time you just sit still and observe. its not a time to reflect on your past, its a time to focus on now and ease yourself off that stress. its that time of silence where you just let everything go and observe everything that matters at this time- the now. this act goes a long way in helping our daily activities, as it helps on only to be focused and placed on the thing that truly matters in our life which is *now.* meditation is best done and effective when you sit still and observe everything- your mind, your heartbeat, your sense of smell. this single act increases calmness, and peace. 
 
-meditation is one thing that is helping me become conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold. everyday, just take atleast 5mins, preferably very early in the morning before any other activity, trust me this works.
+meditation is one thing that is helping me become conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold. everyday, just take at least 5 mins, preferably very early in the morning before any other activity, trust me this works.
 
 **2. DEVOTION**
 
-personally, growing up in an African-christian home, we- my family, usually observe a family prayer in the morning, but i realized that this does not really count if i really want to have an intimate moment with God, and so i tried observing my own daily devotion in this order- wake up read my bible,
+Personally, growing up in an African-christian home, we- my family, usually observe a devotion time everyday, but i realized that this does not really count if i really want to have an intimate moment with God, and so i tried observing my own daily devotion in this order- wake up read my bible, sing worships, and say my prayer. This has helped me become closer to God and has  made me intimate with him. i think it has also helped my journey with him, and has helped make this quarantine a great one.
+
+It is an awesome try, trust me, and i think it is one of the most important thing to help us through this quarantine period.
+
+**3. SET DAILY PLANS**
+
+One very thing that will help us stay focused is keeping tracks of things to do and achieve before a particular time frame. for instance if you have an issue with finishing a book ypu can start with challenging yourself to finish five pages per day, or one chapter per day, this helps you stay focused
