@@ -44,11 +44,11 @@ It is very necessary to become fully aware that there is a difference between li
 
 *"I am the solution to problems, i am very vibrant and important to the world, God the creator has made me the light".*
 
-Importantly, let the Word of Christ as said  John 1 verses 9 be Evident. 
+Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident. 
 
 > "John 1:9 The one who is the true light, who gives light to everyone, was coming into the world". *\[NLT]*
 
-**5. I HAVE TRUE RICH IN CHRIST** 
+**5. I HAVE TRUE RICHES IN CHRIST** 
 
  *Revelation 3 verses 17; I Samuel 2 verses 7.*
 
