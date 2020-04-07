@@ -22,7 +22,7 @@ saying these words with actions will make us fully take charge of the present si
 
 **1. MEDITATION.**
 
-meditation for me is that time you just sit still and observe. its not a time to reflect on your past, its a time to focus on now and ease yourself off that stress. its that time of silence where you just let everything go and observe everything that matters at this time- the now. this act goes a long way in helping our daily activities, as it helps on only to be focused and placed on the thing that truly matters in our life which is *now.* meditation is best done and effective when you sit still and observe everything- your mind, your heartbeat, your sense of smell. this single act increases calmness, and peace. 
+Meditation is that moment you just sit still and observe. this time is not to reflect on your past, its a time to focus on the now and ease yourself off that stress that has . its that time of silence where you just let everything go and observe everything that matters at this time- the now. this act goes a long way in helping our daily activities, as it helps on only to be focused and placed on the thing that truly matters in our life which is *now.* meditation is best done and effective when you sit still and observe everything- your mind, your heartbeat, your sense of smell. this single act increases calmness, and peace. 
 
 meditation is one thing that is helping me become conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold. everyday, just take at least 5 mins, preferably very early in the morning before any other activity, trust me this works.
 
