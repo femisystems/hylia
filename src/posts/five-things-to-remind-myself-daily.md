@@ -6,11 +6,11 @@ date: 2020-04-07T18:07:53.796Z
 tags:
   - DAILY ASSURANCE.
 ---
-You have to take charge of our daily activities! You need to make sure every moment count;  even you feel down, be ready to take charge of your mood.  
+You have to take charge of your life, You need to make sure every moment count;  even at your most vulnerable point, take charge of how you feel; listen to the moment, pay attention to it, and speak positive words.
 
-i have worked on five important words to help us stay charged, focused and reminded of the reasons why we are here, and so hold still and enjoy this moment.
+In this post, i have listed out five important words to say to yourself everyday to help you stay charged, focused and reminded of the reasons you are here. So hold still and enjoy this moment.
 
-however, to make this very effective, please take a sample paper and write these words down, keep them in your wallet or bag- somewhere very accessible.
+However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
 **1. I AM BEAUTIFULLY MADE IN GODS IMAGE**
 
@@ -32,4 +32,8 @@ More so, The Bible has enumerated God's promises for us, this is because of the 
 
  *James 1 verses 17; Genesis 27 verses 29.*
 
-It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself *: "God has created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".*
+It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself *:* 
+
+*"God has me created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".* 
+
+**4.**
