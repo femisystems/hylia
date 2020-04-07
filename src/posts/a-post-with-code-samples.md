@@ -34,4 +34,4 @@ It is an awesome try, trust me, and i think it is one of the most important thin
 
 **3. SET DAILY PLANS**
 
-One very thing that will help us stay focused is keeping tracks of things to do and achieve before a particular time frame. for instance if you have an issue with finishing a book ypu can start with challenging yourself to finish five pages per day, or one chapter per day, this helps you stay focused
+One very thing that will help us stay focused is keeping tracks of things to do and achieve before a particular time frame. for instance if you have an issue with finishing a book you can start with challenging yourself to finish five pages per day, or one chapter in a day, this helps you stay focused
