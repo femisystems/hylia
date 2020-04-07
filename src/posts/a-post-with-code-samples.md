@@ -21,3 +21,7 @@ importantly, as an individual, we can not fully achieve something until we have 
 saying these words with actions will make us fully take charge of the present situation, and make great use of it.  And so i have outlined specific things that we have been getting done, and i know you would love it too, join me. 
 
 **1. MEDITATION.**
+
+meditation for me is that time you just sit still and observe. its not a time to reflect on your past, its a time to focus on now and ease yourself off that stress. its that time of silence where you just let everything go and observe everything that matters at this time- the now. this act goes a long way in helping our daily activities, as it helps on only to be focused and placed on the thing that truly matters in our life which is *now.* meditation is best done and effective when you sit still and observe everything- your mind, your heartbeat, your sense of smell. this single act increases calmness, and peace. 
+
+meditation is one thing that is helping me become very conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold.
