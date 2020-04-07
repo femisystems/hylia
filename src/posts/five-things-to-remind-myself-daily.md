@@ -15,32 +15,32 @@ In this post, i have listed out five important words with biblical references to
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
 ### 1. I AM BEAUTIFULLY MADE IN GODS IMAGE
-[Genesis chapter 1 verses 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NIV)
+[Genesis Chapter 1 verse 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NIV)
 
 It is very important that we remind ourselves always that God has not just created us in some kind of way, but has taken time to create us in his own image and likeness. he has created us just as he is, and so -I am God's image. We fully represent Him on earth. The moment we become fully aware of how much we represent God, then it makes us very conscious of the fact that we are Loved by Him.
 
-### **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**         
-*James 1 verses 17; Genesis 27 verses 29.*
 
- When we are fully aware of the love the Father has towards us, then it makes us assured of His promises for us. say to yourself right now; 
+### 2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME
+[James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NIV) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NIV)
 
-*"God loves me, He can not watch me suffer, He can not watch me go through pains, He can not make me cry, He can not leave me heartbroken".* 
+When we are fully aware of the love the Father has towards us, then it makes us assured of His promises for us. say to yourself right now; 
+
+>"God loves me, He can not watch me suffer, He can not watch me go through pains, He can not make me cry, He can not leave me heartbroken".
 
 More so, The Bible has enumerated God's promises for us, this is because of the Love He has for us- His children. He loves us, relentlessly.
 
 
+### 3. I AM CREATED TO BE A BLESSING TO MY GENERATION
+[James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NIV) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NIV)
 
-**3. I AM CREATED TO BE A BLESSING TO MY GENERATION**
 
- *James 1 verses 17; Genesis 27 verses 29.*
+It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself :
 
-It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself *:* 
+>"God has me created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".
 
-*"God has me created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".* 
+### 4. I AM A CHILD OF LIGHT
+[John 8 : 12](https://www.biblegateway.com/passage/?search=John8:12&version=NIV) [John 9 : 5](https://www.biblegateway.com/passage/?search=John9:5&version=NIV)
 
-**4. I AM A CHILD OF LIGHT**
-
-*John 8 verses 12; John 9 verses 5*
 
 It is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness- now take a look at yourself as that light and say; 
 
