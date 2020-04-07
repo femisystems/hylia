@@ -24,4 +24,8 @@ saying these words with actions will make us fully take charge of the present si
 
 meditation for me is that time you just sit still and observe. its not a time to reflect on your past, its a time to focus on now and ease yourself off that stress. its that time of silence where you just let everything go and observe everything that matters at this time- the now. this act goes a long way in helping our daily activities, as it helps on only to be focused and placed on the thing that truly matters in our life which is *now.* meditation is best done and effective when you sit still and observe everything- your mind, your heartbeat, your sense of smell. this single act increases calmness, and peace. 
 
-meditation is one thing that is helping me become very conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold.
+meditation is one thing that is helping me become conscious of every little details,  and happening and it keeps us very vibrant and active. trust me, you want to do this as it helps us purge every unnecessary feeling we hold. everyday, just take atleast 5mins, preferably very early in the morning before any other activity, trust me this works.
+
+**2. DEVOTION**
+
+Growing up in an African-christian home, we usually observe a family prayer in the morning, but i realized that this does not really count if i really want to have an intimate moment with God, and so i tried observing my own daily devotion in this order- wake up read my bible,
