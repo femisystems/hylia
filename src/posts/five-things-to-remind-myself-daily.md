@@ -28,3 +28,7 @@ It is best that we always remind ourselves that God has not just created us in s
 More so, The Bible has enumerated God's promises for us, this is because of the Love He has for us- His children. He loves us, relentlessly.
 
 **3. I AM CREATED TO BE A BLESSING TO MY GENERATION**
+
+ *James 1 verses 17; Genesis 27 verses 29.*
+
+It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself *:God has created for a ourpose, i am blessed to bless others, i will inpire my generation, i am that change"*
