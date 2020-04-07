@@ -40,4 +40,12 @@ It is important to be aware daily that we- Gods creation are created to be a ble
 
 *John 8 verses 12; John 9 verses 5*
 
-it is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness
+It is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness- now take a look at yourself as that light and say; 
+
+*"i am the solution to problems, i am that vibrant and important to the world, God the creator has made me the light".*
+
+Importantly, let the word of Christ as said  john 1 verses 9 be evident. 
+
+> "John 1:9 The one who is the true light, who gives light to everyone, was coming into the world". *\[NLT]*
+
+5.
