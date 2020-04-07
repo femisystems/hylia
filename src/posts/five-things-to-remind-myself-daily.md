@@ -14,14 +14,12 @@ In this post, i have listed out five important words with biblical references to
 
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
-**1. I AM BEAUTIFULLY MADE IN GODS IMAGE**
-
-   *Genesis chapter 1 verses 7* 
+### 1. I AM BEAUTIFULLY MADE IN GODS IMAGE
+_Genesis chapter 1 verses 7_
 
 It is very important that we remind ourselves always that God has not just created us in some kind of way, but has taken time to create us in his own image and likeness. he has created us just as he is, and so -I am God's image. We fully represent Him on earth. The moment we become fully aware of how much we represent God, then it makes us very conscious of the fact that we are Loved by Him.
 
- **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**         
-
+### **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**         
 *James 1 verses 17; Genesis 27 verses 29.*
 
  When we are fully aware of the love the Father has towards us, then it makes us assured of His promises for us. say to yourself right now; 
@@ -29,6 +27,8 @@ It is very important that we remind ourselves always that God has not just creat
 *"God loves me, He can not watch me suffer, He can not watch me go through pains, He can not make me cry, He can not leave me heartbroken".* 
 
 More so, The Bible has enumerated God's promises for us, this is because of the Love He has for us- His children. He loves us, relentlessly.
+
+
 
 **3. I AM CREATED TO BE A BLESSING TO MY GENERATION**
 
