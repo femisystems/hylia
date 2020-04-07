@@ -48,4 +48,4 @@ Importantly, let the word of Christ as said  john 1 verses 9 be evident.
 
 > "John 1:9 The one who is the true light, who gives light to everyone, was coming into the world". *\[NLT]*
 
-5.
+**5.**
