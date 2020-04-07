@@ -5,7 +5,11 @@ date: 2020-04-07T18:07:53.796Z
 tags:
   - self growth
 ---
-we have to take charge of our daily activities and make sure every moment of it count, and so whenever we feel down, i have words to say to always keep me at alert. here are five things to help you stay charged everyday, they are to make you stay focused and remind you of the reasons why you are here; hold still and enjoy. to make this very effective, please take a sample paper and write these words down and keep them in your wallet or bag, somewhere that you can easily access them.
+You have to take charge of our daily activities! You need to make sure every moment count;  even you feel down, be ready to take charge of your mood.  
+
+i have worked on five important words to help us stay charged, focused and reminded of the reasons why we are here, and so hold still and enjoy this moment.
+
+however, to make this very effective, please take a sample paper and write these words down, keep them in your wallet or bag- somewhere very accessible.
 
 **1. I AM BEAUTIFULLY MADE IN GODS IMAGE**
 
