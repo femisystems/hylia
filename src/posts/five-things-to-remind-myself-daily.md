@@ -52,7 +52,7 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 
  *Revelation 3 verses 17; I Samuel 2 verses 7.*
 
-True riches comes from God, and the power to make wealth comes from Him also. There is however this wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No!Says; 
+True riches and power to make wealth comes from God. There is however this wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No!Says; 
 
 > " II Cor 8:9  For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sake He became poor, so that you through His poverty might become rich".
 
