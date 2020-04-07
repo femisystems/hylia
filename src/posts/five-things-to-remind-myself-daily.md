@@ -48,4 +48,20 @@ Importantly, let the Word of Christ as said  John 1 verses 9 be Evident.
 
 > "John 1:9 The one who is the true light, who gives light to everyone, was coming into the world". *\[NLT]*
 
-**5. I AM VERY RICH IN CHRIST**
+**5. I HAVE TRUE RICH IN CHRIST** 
+
+ *Revelation 3 verses 17; I Samuel 2 verses 7.*
+
+True riches comes from God, and the power to make wealth comes from Him also. There is however this wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No!Says; 
+
+> " II Cor 8:9  For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sake He became poor, so that you through His poverty might become rich".
+
+God's will for us is to be prosperous- as he has set down his own way for us, and so whenever you feel down financially, say to yourself
+
+*"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
+
+It is however very vital to know that saying this should be backed with smart work in diligence. do not forget, take charge!
+
+These are few words of Assurance and exaltation that should be said every day and every moment. Do not forget, you have control over your mind and over what you feel now You only need to pay attention to it and speak positive words, speak it out loud always. 
+
+Thank you for your time, i hope you find this very useful, please drop a reaction in the comment section, or reach out to me on ajewoleglory@gmail.com
