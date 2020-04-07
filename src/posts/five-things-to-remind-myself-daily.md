@@ -3,7 +3,7 @@ layout: layouts/post.njk
 title: FIVE THINGS TO REMIND MYSELF DAILY
 date: 2020-04-07T18:07:53.796Z
 tags:
-  - self growth
+  - DAILY ASSURANCE.
 ---
 You have to take charge of our daily activities! You need to make sure every moment count;  even you feel down, be ready to take charge of your mood.  
 
@@ -13,12 +13,18 @@ however, to make this very effective, please take a sample paper and write these
 
 **1. I AM BEAUTIFULLY MADE IN GODS IMAGE**
 
- *Genesis chapter 1 verses 7* 
+\    *Genesis chapter 1 verses 7* 
 
 It is best that we always remind ourselves that God has not just created us in some kind of way, but has taken his time to create us in his own image and likeness. he has created us just as he is, and so "i am gods image". i represent god in earth. when we fully become aware of how much we represent god, then it makes us conscious of the fact that we are loved by Him.
 
- **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**
+ **2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME**         
 
- *James 1 verses 17; Genesis 27 verses 29.*
+*James 1 verses 17; Genesis 27 verses 29.*
 
- When we are fully aware of the love the father has towards us,
+ When we are fully aware of the love the Father has towards us, then it makes us assured of His promises for us. say to yourself right now; 
+
+*"God loves me, He can not watch me suffer, He can not watch me go through pains, He can not make me cry, He can not leave me heartbroken".* 
+
+More so, The Bible has enumerated God's promises for us, this is because of the Love He has for us- His children. He loves us, relentlessly.
+
+**3. I AM CREATED TO BE A BLESSING TO MY GENERATION**
