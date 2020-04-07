@@ -42,7 +42,7 @@ It is important to be aware daily that we- Gods creation are created to be a ble
 
 It is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness- now take a look at yourself as that light and say; 
 
-*"i am the solution to problems, i am that vibrant and important to the world, God the creator has made me the light".*
+*"I am the solution to problems, i am very vibrant and important to the world, God the creator has made me the light".*
 
 Importantly, let the Word of Christ as said  John 1 verses 9 be Evident. 
 
