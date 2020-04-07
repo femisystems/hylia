@@ -14,36 +14,33 @@ In this post, i have listed out five important words with biblical references to
 
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
-### 1. I AM BEAUTIFULLY MADE IN GODS IMAGE
+### 1. I AM BEAUTIFULLY MADE; I AM GOD'S IMAGE
 [Genesis Chapter 1 verse 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NLT)
 
-It is very important that we remind ourselves always that God has not just created us in some kind of way, but has taken time to create us in his own image and likeness. he has created us just as he is, and so -I am God's image. We fully represent Him on earth. The moment we become fully aware of how much we represent God, then it makes us very conscious of the fact that we are Loved by Him.
+It is of utmost importance to remind ourselves daily that God created us in his own likeness to represent him on earth. Our awareness and understanding of our identity in God is a testament of God’s unending love for us.
 
 
-### 2. GOD LOVES ME; HE IS NEVER ANNOYED WITH ME
+### 2. GOD LOVES ME UNCONDITIONALLY
 [James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NLT) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NLT)
 
-When we are fully aware of the love the Father has towards us, then it makes us assured of His promises for us. say to yourself right now; 
+The unconditional love of the father is an assurance of the fulfilment of his promises in our lives. The steadfast love of the lord is renewed every morning. Say this to yourself:
 
->"God loves me, He can not watch me suffer, He can not watch me go through pains, He can not make me cry, He can not leave me heartbroken".
+>“God loves me too much to watch me languish in pain and suffering. He will wipe my tears and heal my broken heart.”
 
-More so, The Bible has enumerated God's promises for us, this is because of the Love He has for us- His children. He loves us, relentlessly.
-
-
-### 3. I AM CREATED TO BE A BLESSING TO MY GENERATION
+### 3. I AM A CHANNEL OF BLESSING TO MY GENERATION
 [James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NLT) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NLT)
 
+One of our core responsibilities as God’s creation is to be a vessel of blessing to our generation. As the light of God, we are created to radiate his glory amongst our peers. So, anytime you find your self giving up, say this to yourself:
 
-It is important to be aware daily that we- Gods creation are created to be a blessing, and we are created to become an inspiration to others. and so, at that moment you feel like giving up, just remember, and say to yourself :
+>“God created me for his purpose, and that I will fulfil. I am blessed to bless others. I will radiate his glory and inspire my generation. I am the change.”
 
->"God has me created for a purpose, and i will fulfill that; i am blessed to bless others, i will inspire my generation, i am that change".
 
 ### 4. I AM A CHILD OF LIGHT
 [John 8 : 12](https://www.biblegateway.com/passage/?search=John8:12&version=NLT) [John 9 : 5](https://www.biblegateway.com/passage/?search=John9:5&version=NLT)
  
-It is very necessary to become fully aware that there is a difference between light and darkness, and that light illuminate darkness- now take a look at yourself as that light and say:
+It is important to become fully aware that there is a difference between light and darkness, and that light illuminates darkness. Now take a look at yourself as that light and say:
 
-*"I am the solution to problems, i am very vibrant and important to the world, God the creator has made me the light".*
+*"I am the solution to problems, i am vibrant and important to the world. I am the light of God".*
 
 > John 1:9 (NLT): "The one who is the true light, who gives light to everyone, was coming into the world." 
 
@@ -53,7 +50,7 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 ### 5. I HAVE TRUE RICHES IN CHRIST
 [Rev 3 : 17](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) [1Sam 2 : 7](https://www.biblegateway.com/passage/?search=1Samuel2:7&version=NLT)
 
-True riches and power to make wealth comes from God. There is however this wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No! See: 
+True riches and power to make wealth comes from God. There is however, a wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No! See: 
 
 > 2 Cor 8:9 (NLT): "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sake He became poor, so that you through His poverty might become rich".
 
@@ -61,8 +58,8 @@ God's will for us is to be prosperous- as he has set down his own ways for us, a
 
 *"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
 
-It is however very vital to know that saying this should be backed with smart work in diligence. Do not forget, take charge!
+It is however very vital to know that saying this should be backed with hard work and diligence. Do not forget, take charge!
 
-These are few words of Assurance and Exaltation that should be said every moment and day. Do not forget, you have control over your mind and what you feel now, pay attention to it and speak positive words, speak it out loud always. 
+These are few words of assurance and exaltation that should be said every  day. You have control over your mind and what you feel now, pay attention to it and feed it with positivity. 
 
 Thank you for your time, i hope you find this very useful, please drop a reaction in the comment section, or reach out to me at ajewoleglory@gmail.com
