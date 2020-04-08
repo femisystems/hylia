@@ -52,22 +52,32 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 
 [Rev 3 : 17](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) 1 Sam 2 :8 
 
-True riches and power to make wealth comes from God. However, For a long time, this verse has made many Christians happy with penury. The fear of falling into evil, stopped a lot of Believers from attaining greatness, affluence and wealth,  1 Timothy 6:10 says
+True riches and power to make wealth comes from God. But, because of the pre-conceived notion, some Christians have, they feel comfortable in penury, as the fear of falling into evil has stopped them from attaining greatness, affluence and wealth, 
 
-> For the Love of money is the root of all evil...  
+> *1 Timothy 6:10 "For the Love of money is the root of all evil..."* 
 
-Other Christians believe that, God's will for some was to be poor. After all, the Bible said in John 12:8, that  "The poor will always be among you". So God can decide to bless some, and decide to make some poor.  Well, these assumptions are wrong and are not God's plan for his Children.
+Other Christian believe that, God's will for some was to be poor. After all, the Bible has said:
 
-> 2 Cor 8:9 (NLT): "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sake He became poor, so that you through His poverty might become rich".
+> *John 12:8, "you will always have the poor among you..."* 
 
-God's will for us is to be prosperous- as he has set down his own ways for us, and so whenever you feel down financially,
+And so, God can decide to bless some, and decide to make some poor. Well, these assumptions are wrong and are not God's plan for his Children, while some are just being lazy and not taking the necessary steps. 
 
- say to yourself:
+This category of Christian, are those who are ignorant of their divine rights in Christ Jesus. The decision to be poor or remain poor is solely depends on the individual, and not God- He wants us to be rich.
+
+>  *3 John 2, I wish above all things, that you prosper and be in good health, even as your soul prosper* 
+
+More so, it is not enough to just depend solely on God to make us rich, we also need to take action. The natural law that work with riches says: 
+
+> "While the earth remains, seed time, harvest time shall not cease". 
+
+And so, we are to bring the fulfillment of God's word in our lives through actions else we will remain void.
+
+ A daily reminder to yourself should be: 
 
 *"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
 
-It is however very vital to know that saying this should be backed with hard work and diligence. Do not forget, take charge!
+ Remember, to always back up your work with Smart work and diligence. 
 
-These are few words of assurance and exaltation that should be said every  day. You have control over your mind and what you feel now, pay attention to it and feed it with positivity. 
+These are few words of assurance and exaltation that should be said every day. You have control over your mind and what you feel now, pay attention to it and feed it with positivity. 
 
-Thank you for your time, i hope you find this very useful, please drop a reaction in the comment section, or reach out to me at ajewoleglory@gmail.com
+Thank you for your time, i hope you find this very useful, feel free to reach out to me at ajewoleglory@gmail.com for suggestions and comment, have a great one!
