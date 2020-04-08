@@ -50,7 +50,7 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 
 ### 5. I HAVE TRUE RICHES IN CHRIST
 
-[](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) 1 Sam 2 :8 
+[](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) [1 Sam 2 :8 ](https://www.biblegateway.com/passage/?search=1+Samuel+2%3A8&version=KJV)
 
 True riches and power to make wealth comes from God. But, because of the pre-conceived notion some Christians have, they feel comfortable in penury, as the fear of falling into evil has stopped them from attaining greatness, affluence and wealth, See: 
 
