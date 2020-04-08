@@ -50,17 +50,17 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 
 ### 5. I HAVE TRUE RICHES IN CHRIST
 
-[Rev 3 : 17](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) 1 Sam 2 :8 
+[](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) 1 Sam 2 :8 
 
-True riches and power to make wealth comes from God. But, because of the pre-conceived notion, some Christians have, they feel comfortable in penury, as the fear of falling into evil has stopped them from attaining greatness, affluence and wealth, 
+True riches and power to make wealth comes from God. But, because of the pre-conceived notion some Christians have, they feel comfortable in penury, as the fear of falling into evil has stopped them from attaining greatness, affluence and wealth, See: 
 
 > *1 Timothy 6:10 "For the Love of money is the root of all evil..."* 
 
-Other Christian believe that, God's will for some was to be poor. After all, the Bible has said:
+Other Christian believe that God's will for some was to be poor. After all, the Bible has said:
 
 > *John 12:8, "you will always have the poor among you..."* 
 
-And so, God can decide to bless some, and decide to make some poor. Well, these assumptions are wrong and are not God's plan for his Children, while some are just being lazy and not taking the necessary steps. 
+And so, God can decide to bless some, and decide to make some poor. Well, these assumptions are wrong and are not God's plan for us. Some others are just lazy and not taking the necessary steps to becoming wealthy, because they lack the understanding
 
 This category of Christian, are those who are ignorant of their divine rights in Christ Jesus. The decision to be poor or remain poor is solely depends on the individual, and not God- He wants us to be rich.
 
@@ -76,7 +76,7 @@ And so, we are to bring the fulfillment of God's word in our lives through actio
 
 *"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
 
- Remember, to always back up your work with Smart work and diligence. 
+ Remember, it is important that we always back up our Faith and Prayers with Smart work and diligence. 
 
 These are few words of assurance and exaltation that should be said every day. You have control over your mind and what you feel now, pay attention to it and feed it with positivity. 
 
