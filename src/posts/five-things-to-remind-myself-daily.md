@@ -10,6 +10,8 @@ You have to take charge of your life, You need to make sure that every moment of
 
 In this post, i have listed out five important words with biblical references to say to yourself everyday to help you stay charged, focused and reminded of the reasons you are here, and so hold still and enjoy this moment.
 
+![](/images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg)
+
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
 **1. I AM BEAUTIFULLY MADE IN GODS IMAGE**
