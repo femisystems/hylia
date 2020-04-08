@@ -15,29 +15,31 @@ In this post, i have listed out five important words with biblical references to
 However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.
 
 ### 1. I AM BEAUTIFULLY MADE; I AM GOD'S IMAGE
+
 [Genesis Chapter 1 verse 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NLT)
 
 It is of utmost importance to remind ourselves daily that God created us in his own likeness to represent him on earth. Our awareness and understanding of our identity in God is a testament of God’s unending love for us.
 
-
 ### 2. GOD LOVES ME UNCONDITIONALLY
+
 [James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NLT) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NLT)
 
 The unconditional love of the father is an assurance of the fulfilment of his promises in our lives. The steadfast love of the lord is renewed every morning. Say this to yourself:
 
->“God loves me too much to watch me languish in pain and suffering. He will wipe my tears and heal my broken heart.”
+> “God loves me too much to watch me languish in pain and suffering. He will wipe my tears and heal my broken heart.”
 
 ### 3. I AM A CHANNEL OF BLESSING TO MY GENERATION
+
 [James 1 : 17](https://www.biblegateway.com/passage/?search=James1:17&version=NLT) [Genesis 27 : 29](https://www.biblegateway.com/passage/?search=Genesis27:29&version=NLT)
 
 One of our core responsibilities as God’s creation is to be a vessel of blessing to our generation. As the light of God, we are created to radiate his glory amongst our peers. So, anytime you find your self giving up, say this to yourself:
 
->“God created me for his purpose, and that I will fulfil. I am blessed to bless others. I will radiate his glory and inspire my generation. I am the change.”
-
+> “God created me for his purpose, and that I will fulfil. I am blessed to bless others. I will radiate his glory and inspire my generation. I am the change.”
 
 ### 4. I AM A CHILD OF LIGHT
+
 [John 8 : 12](https://www.biblegateway.com/passage/?search=John8:12&version=NLT) [John 9 : 5](https://www.biblegateway.com/passage/?search=John9:5&version=NLT)
- 
+
 It is important to become fully aware that there is a difference between light and darkness, and that light illuminates darkness. Now take a look at yourself as that light and say:
 
 *"I am the solution to problems, i am vibrant and important to the world. I am the light of God".*
@@ -46,15 +48,21 @@ It is important to become fully aware that there is a difference between light a
 
 Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident. 
 
-
 ### 5. I HAVE TRUE RICHES IN CHRIST
-[Rev 3 : 17](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) [1Sam 2 : 7](https://www.biblegateway.com/passage/?search=1Samuel2:7&version=NLT)
 
-True riches and power to make wealth comes from God. There is however, a wrong preconceived notion that some Christians have - they can be Poor because it is the will of God for them, No! See: 
+[Rev 3 : 17](https://www.biblegateway.com/passage/?search=Rev3:17&version=NLT) 1 Sam 2 :8 
+
+True riches and power to make wealth comes from God. However, For a long time, this verse has made many Christians happy with penury. The fear of falling into evil, stopped a lot of Believers from attaining greatness, affluence and wealth,  1 Timothy 6:10 says
+
+> For the Love of money is the root of all evil...  
+
+Other Christians believe that, God's will for some was to be poor. After all, the Bible said in John 12:8, that  "The poor will always be among you". So God can decide to bless some, and decide to make some poor.  Well, these assumptions are wrong and are not God's plan for his Children.
 
 > 2 Cor 8:9 (NLT): "For you know the Grace of our Lord Jesus Christ, that though He was rich, yet for your sake He became poor, so that you through His poverty might become rich".
 
-God's will for us is to be prosperous- as he has set down his own ways for us, and so whenever you feel down financially, say to yourself:
+God's will for us is to be prosperous- as he has set down his own ways for us, and so whenever you feel down financially,
+
+ say to yourself:
 
 *"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
 
