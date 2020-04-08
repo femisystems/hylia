@@ -1,6 +1,6 @@
 ---
 layout: layouts/post.njk
-title: FIVE THINGS TO REMIND MYSELF DAILY
+title: 5 THINGS TO REMIND MYSELF DAILY
 socialImage: /images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg
 date: 2020-04-07T18:07:53.796Z
 tags:
