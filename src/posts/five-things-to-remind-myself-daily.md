@@ -56,11 +56,11 @@ True riches and power to make wealth comes from God. But, because of the pre-con
 
 > *1 Timothy 6:10 "For the Love of money is the root of all evil..."* 
 
-Other Christian believe that God's will for some was to be poor. After all, the Bible has said:
+Other Christians believe that God's will for some was to be poor. After all, the Bible has said:
 
 > *John 12:8, "you will always have the poor among you..."* 
 
-And so, God can decide to bless some, and decide to make some poor. Well, these assumptions are wrong and are not God's plan for us. Some others are just lazy and not taking the necessary steps to becoming wealthy, because they lack the understanding
+And so, God can decide to bless some, and decide to make some poor. Well, these assumptions are wrong and are not God's plan for us. On the other hand, some others are just lazy and not taking the necessary steps to becoming wealthy, because they lack the understanding of True riches.
 
 This category of Christian, are those who are ignorant of their divine rights in Christ Jesus. The decision to be poor or remain poor is solely depends on the individual, and not God- He wants us to be rich.
 
@@ -70,14 +70,14 @@ More so, it is not enough to just depend solely on God to make us rich, we also 
 
 > "While the earth remains, seed time, harvest time shall not cease". 
 
-And so, we are to bring the fulfillment of God's word in our lives through actions else we will remain void.
+And so, you are to bring the fulfillment of God's word in your lives through actions else we will remain void.
 
  A daily reminder to yourself should be: 
 
 *"I have True riches in Christ Jesus; in Him there is wealth, and riches everlasting"*
 
- Remember, it is important that we always back up our Faith and Prayers with Smart work and diligence. 
+Remember, it is important that we always back up our Faith and Prayers with Smart work and diligence. 
 
 These are few words of assurance and exaltation that should be said every day. You have control over your mind and what you feel now, pay attention to it and feed it with positivity. 
 
-Thank you for your time, i hope you find this very useful, feel free to reach out to me at ajewoleglory@gmail.com for suggestions and comment, have a great one!
+Thank you for your time, i hope you find this very useful, feel free to reach out to me at ajewoleglory@gmail.com for suggestions and comment, i look forward to hearing from you. Have a great one!
