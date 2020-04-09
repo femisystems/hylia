@@ -1,12 +1,12 @@
 {
   "showThemeCredit": false,
-  "name": "EtchedWords",
-  "shortDesc": "A personal space where i share my thoughts.",
+  "name": "Etched words",
+  "shortDesc": "Faith and Lifestyle blog",
   "url": "https://www.etchedwords.com",
   "authorEmail": "ajewoleglory@gmail.com",
   "authorHandle": "@janevigour",
   "authorName": "Janet Ajewole",
-  "enableThirdPartyComments": false,
+  "enableThirdPartyComments": true,
   "paymentPointer": "$coil.xrptipbot.com/c1f8f05d-8d8c-4f37-b1ad-25677ae129da",
   "faviconPath": "/images/favicon.png",
   "maxPostsPerPage": 5
