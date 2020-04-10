@@ -4,7 +4,8 @@ title: 5 THINGS TO REMIND MYSELF DAILY
 socialImage: /images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg
 date: 2020-04-07T18:07:53.796Z
 tags:
-  - DAILY ASSURANCE.
+  - FAITH
+  - DAILY ASSURANCE
 ---
 You have to take charge of your life, You need to make sure that every moment of it count;  even at your most vulnerable point, take charge of how you feel; listen to the mind, pay attention to what it says and speak positive words.
 
