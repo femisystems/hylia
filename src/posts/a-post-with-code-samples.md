@@ -5,7 +5,7 @@ date: 2020-04-08T19:00:00.000Z
 tags:
   - PRODUCTIVITY
 ---
-Quarantine is that time we have always used as an excuse to not achieve our set goals, and like an answered prayer, we have it now, so it is best we put it to good use and make it count.
+Quarantine is that time *we* have always used as an excuse to not achieve our set goals, and like an answered prayer, we have it now, so it is best we put it to good use and make it count.
 
 Today, i want to share a few thing i have been doing with boo which i think will be of benefit to us during and after the quarantine period. So we go back to work, school and our normal daily activity after the lock down, as a positively changed person.
 
@@ -15,7 +15,7 @@ So let's get right to it. here are 10 things that will help you make quarantine 
 
 ![](/images/jared-rice-ntybbu66_si-unsplash.jpg "jared-rice-ntybbu66_si- unsplash.")
 
-###  **MEDITATE.**
+### **MEDITATE.**
 
 Meditation is that moment of silence. This time is not to reflect on the past, but to time to focus on the now and ease yourself off the stress that has accumulated. it is a moment to observe just what matters at the time- the mind. This act goes a long way in helping us purge off all negativity, and helps focus on the better picture. This is  effective when you stay still and just remain silent. while focusing on the inner self- the mind and heartbeat. This act increases calmness and peace. And it further helps us become conscious of every little details and keeps us very vibrant and active. 
 
@@ -39,7 +39,7 @@ One thing i never forget to do everyday during this period is read. And as much 
 
 ![](/images/bonnie-kittle-giizsko7guk-unsplash.jpg "bonnie-kittle on unsplash")
 
-###  **TAKE PROFESSIONAL COURSES**
+### **TAKE PROFESSIONAL COURSES**
 
 This period is the perfect time to grooming yourself. So, it is vital that you try to learn a skill or improve if you have one. More so, professional websites are giving back during this period, and they are offering professional courses for free, so you can take advantage of it. Take a course you have interest and keep at it. All you need is data connection and dedication. Here is a list of website offering free courses to help:
 
@@ -54,8 +54,6 @@ https://t.co/L52bcer1UM
 https://www.udemy.com/courses/free/?utm_source=org-social&utm_medium=twitter&utm_campaign=resourcecenter
 
 https://www.futurelearn.com/partners/british-council
-
-
 
 ### **CHECK UP ON FRIENDS**
 
