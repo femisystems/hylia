@@ -41,7 +41,19 @@ One thing i never forget to do everyday during this period is read. And as much 
 
 ###  **TAKE PROFESSIONAL COURSES**
 
-This period is the perfect time to grooming yourself. So, it is vital that you try to learn a skill or improve if you have one. More so, professional websites are giving back during this period, and they are offering professional courses for free, so you can take advantage of it. Take a course you have interest and keep at it. All you need is data connection and dedication. Here is a list of website offering free courses to help.
+This period is the perfect time to grooming yourself. So, it is vital that you try to learn a skill or improve if you have one. More so, professional websites are giving back during this period, and they are offering professional courses for free, so you can take advantage of it. Take a course you have interest and keep at it. All you need is data connection and dedication. Here is a list of website offering free courses to help:
+
+https://yali.state.gov/courses/
+
+https://online.hbs.edu/courses/free-business-lessons/
+
+https://t.co/L52bcer1UM
+
+ https://t.co/YocHwkFM1s
+
+https://www.udemy.com/courses/free/?utm_source=org-social&utm_medium=twitter&utm_campaign=resourcecenter
+
+https://www.futurelearn.com/partners/british-council
 
 
 
