@@ -63,8 +63,6 @@ This implies that we are now free from the punishment attached to the law - Deat
 
 These are few words of affirmation to be said daily. Culture your mind to positivity, because: *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
 
-Yeah, that's all for now. 
-
 Thank you for reading to the very end, God bless you.
 
 I hope you find this very useful. Please, Feel free to reach out to me at ajewoleglory@gmail.com for suggestions and comment, i look forward to hearing from you. Have a great one!
