@@ -9,11 +9,11 @@ tags:
 ---
 ![](/images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg)
 
-You have to take charge of your life, You need to make sure that every moment of it count;  even at your most vulnerable point, take charge of how you feel; listen to the mind, pay attention to what it says and speak positive words.
+You have to take charge of your life, You need to make sure that every moment of it count;  even at your most vulnerable point, take charge of how you feel; listen to your mind, pay attention to what it says and speak positive words.
 
 In this post, i have listed five important words with biblical references to say everyday to help you stay charged, focused and reminded of the reasons you are here, so hold still and enjoy this moment.
 
-*However, to make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.*
+*To make this very effective, please take a sample paper and write these words, keep them in your wallet or bag- somewhere very accessible.*
 
 ### I AM BEAUTIFULLY MADE; I AM GOD'S IMAGE
 
@@ -61,7 +61,7 @@ Being bounded by grace is made possible through the sacrifice Christ has made on
 
 This implies that we are now free from the punishment attached to the law- Death. We have life eternal, Amen.
 
-These are few words of exaltation to be said yourself daily, also culture your mind for positivity, because *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
+These are few words of exaltation to be said yourself daily. Culture your mind to positivity, because: *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
 
 Thank you for reading to the very end, God bless you.
 
