@@ -55,11 +55,11 @@ Importantly, let the Word of Christ as said in  John 1 verses 9 be  made Evident
 
 [ROM 5:20](https://www.biblegateway.com/passage/?search=Romans+5%3A20&version=NIV)
 
-Being bounded by grace is made possible through the sacrifice Christ has made on the Cross, and just as he rose up from death, we have risen from the power of sin which comes through the Law, to Grace. Now say to yourself:
+Being bound by grace is made possible through the sacrifice Christ has made on the cross, and just as he rose up from death, we have risen from the power of sin which comes through the Law, to Grace. Now say to yourself:
 
-*"I am bounded by Grace, therefore i am free"*
+*"I am bound by Grace, therefore i am free"*
 
-This implies that we are now free from the punishment attached to the law- Death. We have life eternal, Amen.
+This implies that we are now free from the punishment attached to the law - Death. We have life eternal, Amen.
 
 These are few words of affirmation to be said yourself daily. Culture your mind to positivity, because: *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
 
