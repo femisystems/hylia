@@ -6,7 +6,6 @@ date: 2020-04-07T18:07:53.796Z
 tags:
   - FAITH
   - DAILY ASSURANCE
-  - ""
 ---
 ![](/images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg)
 
