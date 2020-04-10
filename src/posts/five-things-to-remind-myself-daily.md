@@ -28,6 +28,8 @@ It is of utmost importance to remind ourselves daily that God created us in his 
 The unconditional love of the father is an assurance of the fulfilment of his promises in our lives. The steadfast love of the lord is renewed every morning. Say this to yourself:
 
 > “God loves me too much to watch me languish in pain and suffering. He will wipe my tears and heal my broken heart.”
+>
+> ![](/images/tim-tebow-foundation-uwdjvultdma-unsplash.jpg)
 
 ### I AM A CHANNEL OF BLESSING TO MY GENERATION
 
