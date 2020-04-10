@@ -6,6 +6,7 @@ date: 2020-04-07T18:07:53.796Z
 tags:
   - FAITH
   - DAILY ASSURANCE
+  - ""
 ---
 ![](/images/whatsapp-image-2020-04-07-at-5.29.20-am.jpeg)
 
@@ -61,7 +62,7 @@ Being bounded by grace is made possible through the sacrifice Christ has made on
 
 This implies that we are now free from the punishment attached to the law- Death. We have life eternal, Amen.
 
-These are few words of exaltation to be said yourself daily. Culture your mind to positivity, because: *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
+These are few words of affirmation to be said yourself daily. Culture your mind to positivity, because: *For as he thinketh in his heart, so is he, proverbs 23:7 (KJV)*.  You have control over your mind and what you feel now, pay attention to it and nurture it with God's word.
 
 Thank you for reading to the very end, God bless you.
 
