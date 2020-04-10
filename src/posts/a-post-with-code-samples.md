@@ -7,11 +7,11 @@ tags:
 ---
 Quarantine is that time we have always used as an excuse to not achieve our set goals, and like an answered prayer, we have it now, so it is best we put it to good use and make it count.
 
-Today, i want to share a few thing i have been doing and i know will of benefit to us during and after the quarantine period, at least So we go back to work, school and our normal daily activity after the lock down, it will as a positively changed person.
+Today, i want to share a few thing i have been doing with boo which i think will be of benefit to us during and after the quarantine period. So we go back to work, school and our normal daily activity after the lock down, as a positively changed person.
 
-*Most importantly as individuals, we can not fully achieve something until we have set our minds to it, so put your mind to it, and get it done.*
+*Most importantly, as individuals, we can not fully achieve something until we have set our minds to it, so put your mind to it, and get it done.*
 
-So let's get right to it. here are 10 things that will help you make quarantine productive.
+So let's get right to it. here are 10 things that will help you make quarantine productive and very interesting. 
 
 ![](/images/jared-rice-ntybbu66_si-unsplash.jpg "jared-rice-ntybbu66_si- unsplash.")
 
@@ -61,9 +61,9 @@ https://www.futurelearn.com/partners/british-council
 
 As much as this lock down has it positive sides it also has its negative side on people, especially for those struggling mentally and financially. I have personally been taking this period to reach out to old folks, and this has helped a lot, especially during your free times in the day. That call you want to make, can help somebody smile, and help them know that you care. More so, it  can further helps to strengthen or build that bond you you with loved ones, family and friends. So make that call, now!  
 
-### **UPDATE YOUR LINKEDN PROFILE**
+### **UPDATE YOUR LINKEDlN PROFILE**
 
-For professional folks, Linkedn is a great place to help us network and build professional connection with potential client and employees, and it has always been about our normal life before the lock down. This period is a perfect opportunity to  build your professional profile,  and post interesting stuff on your profile. it further helps you in attracting people which could be a great boost to your career.
+For professional folks, Linkedln is a great place to help us network and build professional connection with potential client and employees, and it has always been about our normal life before the lock down. This period is a perfect opportunity to  build your professional profile,  and post interesting stuff on your profile. it further helps you in attracting people which could be a great boost to your career.
 
 ![](/images/kari-shea-qa1wvrlwcio-unsplash.jpg "kari-shea-unsplash")
 
