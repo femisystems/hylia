@@ -5,13 +5,13 @@ date: 2020-04-08T19:00:00.000Z
 tags:
   - PRODUCTIVITY
 ---
-Quarantine is that time *we* have always used as an excuse to not achieve our set goals, and like an answered prayer, we have it now, so it is best we put it to good use and make it count.
+Quarantine is that time *we* have always used as an excuse to not achieve our *set goals,* and like an answered prayer, we have it now, so it is best we put it to good use and make it count.
 
-Today, i want to share a few thing i have been doing with boo which i think will be of benefit to us during and after the quarantine period. So we go back to work, school and our normal daily activity after the lock down, as a positively changed person.
+Today, i want to share a few thing i have been doing with boo which i think will be of great benefit to us during and after the quarantine period. So we can go back to work, school and our normal daily activity after the lock down, as a positively changed person.
 
 *Most importantly, as individuals, we can not fully achieve something until we have set our minds to it, so put your mind to it, and get it done.*
 
-So let's get right to it. here are 10 things that will help you make quarantine productive and very interesting. 
+So let's get right to it. Here are 10 things that will help you make quarantine productive and very interesting. 
 
 ![](/images/jared-rice-ntybbu66_si-unsplash.jpg "jared-rice-ntybbu66_si- unsplash.")
 
