@@ -19,7 +19,7 @@ In this post, i have listed five important words with biblical references to say
 
 [Genesis Chapter 1 verse 7](https://www.biblegateway.com/passage/?search=Genesis1:7&version=NLT)
 
-It is of utmost importance to remind ourselves daily that God created us in his own likeness to represent him on earth. Our awareness and understanding of our identity in God is a testament of God’s unending love for us.
+It is of utmost importance to remind ourselves daily that God created us in His own Likeness to represent Him on earth. Our awareness and understanding of our identity in God is a testament of God’s unending love for us.
 
 ### GOD LOVES ME UNCONDITIONALLY
 
