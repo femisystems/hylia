@@ -2,12 +2,16 @@
 layout: layouts/post.njk
 title: DOES LOVE TRULY MATTER?
 metaTitle: ""
+metaDesc: Photo by Steve Halama on Unsplash
+socialImage: /images/steve-halama-yrgpxwbvy0e-unsplash-1-.jpg
 date: 2020-05-05T08:45:01.443Z
 tags:
   - love
   - sacrifice
   - giving
 ---
+![Photo by Steve Halama on Unsplash](/images/steve-halama-yrgpxwbvy0e-unsplash-1-.jpg "Photo by Steve Halama on Unsplash")
+
 Last night, i had a discussion with a very close friends of mine around life, love and people in  general.  He went on to tell me about how his friend would not give him a job but always comes back to ask for his opinion on that particular job, wanting to gain from his own knowledge, let's say his friend wants to keep using him to his own advantage, but do not want to give him anything in return, and this made me worry about what our definition of love truly means, well here goes something stay with me. 
 
 Often times, we get too engulfed with this word "Love" because it is only very easy to say rather than doing it- the action of the word itself. Our definition of love although differ because of our human mind and its uniqueness in the way it process and react to things, but no definition can beat love as "sacrifice". If truly you love me, how far can you go for me?
