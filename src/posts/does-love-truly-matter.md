@@ -3,7 +3,7 @@ layout: layouts/post.njk
 title: DOES LOVE TRULY MATTER?
 metaTitle: ""
 metaDesc: Photo by Steve Halama on Unsplash
-socialImage: /images/steve-halama-yrgpxwbvy0e-unsplash-1-.jpg
+socialImage: /images/steve-halama-yrgpxwbvy0e-unsplash.jpg
 date: 2020-05-05T08:45:01.443Z
 tags:
   - love
