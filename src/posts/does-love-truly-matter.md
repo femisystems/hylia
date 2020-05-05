@@ -36,7 +36,7 @@ Over all, Love unconditionally.
 
 Now, does love truly matter? YES! Everyday, love matters. it plays a crucial role in our relationship with our spouse, friends, family and even colleagues. Love does matter.  
 
-Thank you for reading to the end, do not forget to drop your views on the definition of love and ways to love better, i would love to hear you. you can send me an email [here](ajewoleglory@gmail.com).
+Thank you for reading to the end, i would love to know what you think on this definition of love and ways to love better. Send me an email [here](ajewoleglory@gmail.com), and do not forget to follow me on [twitter ](https://twitter.com/JaneVigour)and[ instagram](https://www.instagram.com/jane_vigour/). 
 
 With love so big,
 
