@@ -10,6 +10,8 @@ tags:
   - sacrifice
   - giving
 ---
+![](/images/1c726f3d-0aa2-4ec9-bd0e-d68a8373548d.jpg)
+
 Some days ago, while having a conservation with a very close friends of mine around life, love and people in general.  He (my friend) went on to lament about how a supposed friend of his would not put him up for jobs he had at his disposal, but will always come back to him for his opinion on that particular job he has refused to give out- wanting to gain from his own knowledge. Let's say his friend wants to keep using him to his own advantage, but does not want to give him anything in return, and this aroused that big question in me What do you know about love? How do you define love? how can you love truly and genuinely?  well here goes something on this, stay with me. 
 
 Often times, we get too engulfed with  this word "Love" because it is only very easy to say rather than doing it- the action of the word itself. Our definition of love although differ because of our human mind and its uniqueness in the way it process and react to things, but no definition can beat love as "sacrifice". If truly you love me, how far can you go for me?
