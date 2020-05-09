@@ -1,13 +1,13 @@
 {
-  "showThemeCredit": false,
-  "name": "Etched words",
-  "shortDesc": "Faith and Lifestyle blog",
+  "showThemeCredit": true,
+  "name": "Jane❤️",
+  "shortDesc": "LadyJ©️ 2020  / All Rights Reserved ",
   "url": "https://www.etchedwords.com",
   "authorEmail": "ajewoleglory@gmail.com",
   "authorHandle": "@janevigour",
   "authorName": "Janet Ajewole",
   "enableThirdPartyComments": true,
   "paymentPointer": "$coil.xrptipbot.com/c1f8f05d-8d8c-4f37-b1ad-25677ae129da",
-  "faviconPath": "/images/favicon.png",
+  "faviconPath": "IMAGES/FAV.JPG",
   "maxPostsPerPage": 5
 }
