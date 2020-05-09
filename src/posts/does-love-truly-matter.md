@@ -3,14 +3,14 @@ layout: layouts/post.njk
 title: DOES LOVE TRULY MATTER?
 metaTitle: ""
 metaDesc: Photo by Steve Halama on Unsplash
-socialImage: /images/steve-halama-yrgpxwbvy0e-unsplash.jpg
+socialImage: /images/1c726f3d-0aa2-4ec9-bd0e-d68a8373548d.jpg
 date: 2020-05-05T08:45:01.443Z
 tags:
   - love
   - sacrifice
   - giving
 ---
-![Photo by Steve Halama on Unsplash](/images/steve-halama-yrgpxwbvy0e-unsplash-1-.jpg "Photo by Steve Halama on Unsplash")
+![](/images/1c726f3d-0aa2-4ec9-bd0e-d68a8373548d.jpg)
 
 While having a discussion with a very close friends of mine around life, love and people in general.  My supposed friend went on to lament to me about how a friend of his would not put him up for jobs he had at his disposal, but will always come back to him for his opinion on that particular job he has refused to give out- wanting to gain from his own knowledge. Let's say his friend wants to keep using him to his own advantage, but does not want to give him anything in return, and this aroused that big question in me What do you know about love? How do you define love? how can you love truly and genuinely?  well here goes something on this, stay with me. 
 
