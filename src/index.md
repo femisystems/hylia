@@ -6,8 +6,6 @@ postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: ""
 ---
-
-
 ![](/images/fav.jpg)
 
 ## **A little story of me...**
@@ -26,4 +24,4 @@ Hey, it is super fantastic to have you be a partof this journey. Always know thi
 
 *With love,* 
 
-*Jane.*
+*Jane*❤️*.*
