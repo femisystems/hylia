@@ -12,7 +12,7 @@ socialImage: ""
 
 Well, i am **Janet Ajewole** fondly called *Jane -* a Nigerian and a Grace-filled Christian. I'm an obsessed humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as a Team Lead and Social Media Manager for *Do Good Charity Initiative*. 
 
-## **About the blog**
+## **About the Blog**
 
 My aspiration to hone my skills across different disciplines - Content Creation, Creative & Copy Writing, Digital/creative Marketing and Vlogging - motivated me to create this blog to share my thoughts and progress. In this space, I will share useful nuggets, my faith journey, fun stuff and ideas that I find intriguing, inspirational and beneficial to my audience. i am not a full time writer, well maybe a lazy one but I promise to make this worth your time. 
 
