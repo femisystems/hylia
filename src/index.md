@@ -22,7 +22,7 @@ My aspiration to hone my skills across different disciplines - Content Creation,
 
 Its very safe place here, and i would love to have you share your thoughts, opinions and feedback [](ajewoleglory@gmail.com)[here](ajewoleglory@gmail.com). I look forward to it! You also can not afford to miss daily updates on my social media platforms, check me out on [instagram](https://www.instagram.com/jane_vigour/) and [twitter](https://twitter.com/JaneVigour). 
 
-Hey, it is super fantastic to have you be a part of my journey join me as we grow together. Always know this: YOU ARE FABULOUS, NEVER FEEL LESS! 
+Hey, it is super fantastic to have you be a partof this journey. Always know this: YOU ARE FABULOUS, GOD LOVES YOU, NEVER FEEL LESS! 
 
 *With love,* 
 
