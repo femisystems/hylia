@@ -10,7 +10,9 @@ socialImage: ""
 
 ## **A little story of me...**
 
-I am **Janet Ajewole** fondly called *Jane -* a Nigerian and a Grace-filled Christian. I'm an humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as the Team Lead and Social Media Manager for *Do Good Charity Initiative*. I love learning in my free time- as i always want to acquire new skills and learn new stuffs. I am a passion driven, charismatic and goal oriented individual, Trust me, i am a fun lover and highly opinionated, which makes me unique, but you will love me. 
+I am **Janet Ajewole** fondly called *Jane -* a Nigerian and a Grace-filled Christian. I'm an humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as the Team Lead and Social Media Manager for *Do Good Charity Initiative*.
+
+ I love learning in my free time- as i always want to acquire new skills and learn new stuffs. I am a passion driven, charismatic and goal oriented individual but Trust me, i am a fun lover and highly opinionated, which makes me unique, but you will love me. 
 
 ## **About the Blog**
 
