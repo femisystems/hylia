@@ -12,7 +12,7 @@ tags:
 ---
 ![](/images/1c726f3d-0aa2-4ec9-bd0e-d68a8373548d.jpg)
 
-How do you explain love from being in the giving end? let's see.
+How do you explain love from being in the giving end? 
 
 Some days ago, while having a conservation with a very close friends of mine around life, love and people in general, he (my friend) went on to lament about how a supposed friend of his will not put him up for the jobs he had at his disposal, but will always come back to ask for his opinion on some of this jobs he had refused to give out- wanting to gain from his (my friend's) knowledge. Let's say his friend wants to keep using him to his own advantage, but does not want to give him anything in return, and this aroused that big question in me- What do 'you' know about love, and how do you explain it from the context of the giver? how does one love truly and genuinely without being in a romantic relationship with the other person?  Let's see; Well here goes something on this, stay with me. 
 
