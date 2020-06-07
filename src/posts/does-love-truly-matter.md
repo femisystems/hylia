@@ -1,6 +1,6 @@
 ---
 layout: layouts/post.njk
-title: WHAT IS LOVE?
+title: HOW DO "YOU" DEFINE LOVE?
 metaTitle: ""
 metaDesc: Photo by Steve Halama on Unsplash
 socialImage: /images/1c726f3d-0aa2-4ec9-bd0e-d68a8373548d.jpg
