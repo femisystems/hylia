@@ -41,4 +41,6 @@ Please remember to educate Somebody today on what consent means.
 
 Do not forget to talk a child or teen in your care today, teach them to flee from any "uncle" or "aunty" trying to touch them in an inappropriate manner, train them to speak up and trust you. 
 
-Love always,  Jane
+Love always,
+
+Jane
