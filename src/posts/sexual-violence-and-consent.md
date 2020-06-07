@@ -8,11 +8,7 @@ tags:
   - speaking up
   - consent.
 ---
-
-
-
-
-Hey there, how are you feeling with all that has been going on around lately? well, i know its been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
+Hey there, how do you feel, especially with all that has been going on around lately? well, i know its been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
 
 To begin with, if you have ever been a victim of sexual assault, molestation, or have lost a close pal to any of these, i want you to know that it is okay to have this "emotions" range from these recent happenings, it is normal.  You are strong, you will be fine, you will heal, give it time. 
 
@@ -26,8 +22,7 @@ Simply put, Consent means giving permission for something to happen. and so, in 
 
 *They are your spouse is not consent* 
 
-*They are drunk is not consent
-They are vulnerable is not consent
+*They are drunk is not consent They are vulnerable is not consent
 They slept over is not consent
 They are free with you is not consent!
 They said "maybe" is not consent!
