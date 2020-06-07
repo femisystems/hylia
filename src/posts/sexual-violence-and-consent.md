@@ -8,6 +8,8 @@ tags:
   - speaking up
   - consent.
 ---
+![](/images/whatsapp-image-2020-06-07-at-8.19.24-pm.jpeg)
+
 Hey there, how do you feel, especially with all that has been going on around lately? well, i know its been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
 
 To begin with, if you have ever been a victim of sexual assault, molestation, or have lost a close pal to any of these, i want you to know that it is okay to have this "emotions" range from these recent happenings, it is normal.  You are strong, you will be fine, you will heal, give it time. 
