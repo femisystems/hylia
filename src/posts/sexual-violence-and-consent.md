@@ -10,7 +10,7 @@ tags:
 ---
 ![](/images/whatsapp-image-2020-06-07-at-8.19.24-pm.jpeg)
 
-Hey there, its been a lot to take in right? i know, especially with all that has been going on around lately. well, its also been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
+Hey there, its been a lot to take in, right? i know, especially with all that has been going on around lately.  it's been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
 
 The truth is, its sad to see how much women have lost their lives from this traumatic experience,, we will join hands to keep fighting this none stop, Rapist deserves to be castrated!
 
