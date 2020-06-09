@@ -26,13 +26,18 @@ Simply put, Consent means giving permission for something to happen. and so, in 
 
 *They are your spouse is not consent* 
 
-*They are drunk is not consent They are vulnerable is not consent They slept over is not consent
-They are free with you is not consent!
+*They are drunk is not consent* 
+
+*They are vulnerable is not consent* 
+
+*They slept over is not consent* 
+
+*They are free with you is not consent!
 They said "maybe" is not consent!
 They slept on same bed with you is not consent
 "we" have done it before is not consent.*
 
-Consent is having somebody's **full permission** to do something, do not assume, always ask.
+Consent is having somebody's **full permission** to do something. Do not assume, always ask.
 
 There is really no way to prevent this act from happening But we can try by educating our ward on the appropriate measures to take and bringing them up appropriately.. but this is still not enough! These rapists will keep doing their thing, and it is right for us to keep seeking justice for their victims, especially the ones who have spoken out despite the hurdles and stigmatization they might face.  
 
@@ -40,7 +45,7 @@ Please remember to educate Somebody today on what consent means.
 
 Do not forget to fight for the future, talk to a child or teen in your care today, teach them to flee from any "uncle" or "aunty" trying to touch them in an inappropriate manner, train them to speak up and stand up for the right things always, teach them to trust you believe in them. 
 
-My prayers are with Everyone who has gone through this, God heal you, and give you reasons to be happy always. 
+My prayers are with Everyone who has gone through any of this, may God heal you and give you reasons to be happy always. 
 
 Love always,
 
