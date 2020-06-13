@@ -5,10 +5,9 @@ date: 2020-06-07T19:11:26.229Z
 tags:
   - rape
   - assault
-  - speaking up
   - consent.
 ---
-![](/images/whatsapp-image-2020-06-07-at-8.19.24-pm.jpeg)
+![](/images/daniele-riggi-udzoqm341dc-unsplash.jpg)
 
 Hey there, its been a lot to take in, right? i know, especially with all that has been going on around lately.  it's been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
 
@@ -32,8 +31,7 @@ Simply put, Consent means giving permission for something to happen. and so, in 
 
 *They slept over is not consent* 
 
-*They are free with you is not consent!
-They said "maybe" is not consent!
+*They are free with you is not consent! They said "maybe" is not consent!
 They slept on same bed with you is not consent
 "we" have done it before is not consent.*
 
