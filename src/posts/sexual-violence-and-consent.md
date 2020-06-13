@@ -9,11 +9,11 @@ tags:
 ---
 ![](/images/daniele-riggi-udzoqm341dc-unsplash.jpg)
 
-Hey there, its been a lot to take in, right? i know, especially with all that has been going on around lately.  it's been an overwhelming  year around the world- the pandemic, rape reports, police brutality, racism, unjust killing and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
+Hey there, its been a lot to take in, right? i know, especially with all that has been going on around lately.  it's been an overwhelming year around for the world- the pandemic, rape reports, police brutality, racism, unjust killings and all, i also know how mentally draining all of this is, but God still Got us, He will never leave us hanging, Hold forth!
 
-The truth is, its sad to see how much women have lost their lives from this traumatic experience,, we will join hands to keep fighting this none stop, Rapist deserves to be castrated!
+The truth is, its sad to see how much women have lost their lives from this traumatic experience, we will join hands to keep fighting this none stop, Rapists deserve to be castrated!
 
-If you have ever been a victim of sexual assault, molestation, or have lost a close pal to any of these, i want you to know that it is okay to have this "emotions" range from this recent happenings, it is normal but You are strong, you will be fine, you will heal, give it time. 
+If you have ever been a victim of sexual assault, molestation, or have lost a close pal to any of these, i want you to know that it is okay to have this "emotions" range from the recent happenings, it is normal but You are strong, you will be fine, you will heal, give it time. 
 
 Today, i am sharing my take on this very vital topic. one that has brought a lot of people pain, fear and trauma. 
 
