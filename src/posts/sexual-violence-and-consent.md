@@ -31,8 +31,7 @@ Simply put, Consent means giving permission for something to happen. and so, in 
 
 *They slept over is not consent* 
 
-*They are free with you is not consent! They said "maybe" is not consent!
-They slept on same bed with you is not consent
+*They are free with you is not consent! They said "maybe" is not consent! They slept on same bed with you is not consent
 "we" have done it before is not consent.*
 
 Consent is having somebody's **full permission** to do something. Do not assume, always ask.
@@ -47,4 +46,4 @@ My prayers are with Everyone who has gone through any of this, may God heal you 
 
 Love always,
 
-Jane
+Jane.
