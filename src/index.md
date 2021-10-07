@@ -6,17 +6,19 @@ postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: ""
 ---
-![](/images/fav.jpg)
+![](/images/photo_2021-10-07_18-51-30.jpg)
 
 ## **A little story of me...**
 
-I am **Janet Ajewole** fondly called *Jane -* a Nigerian and a Grace-filled Christian. I'm an humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as the Team Lead and Social Media Manager for *Do Good Charity Initiative*.
+I am **Janet Ajewole** fondly called *Jane -* a Nigerian Currently based in the Netherlands  and a Grace-filled Christian. I'm a [product designer](https://janet-ajewole.super.site/) and  a humanitarian with a profound passion for helping the less privileged, indigent kids, as well as single and struggling mothers in the society. I currently volunteer as the Team Lead and Social Media Manager for *Do Good Charity Initiative*.
 
  I love learning during my leisure - as i always want to acquire new skills and learn new stuffs. I am  passion driven, charismatic and goal oriented and Trust me, i am a fun lover and highly opinionated.
 
+![](/images/photo_2021-10-07_18-50-22.jpg)
+
 ## **About the Blog**
 
-My aspiration to hone my skills across different disciplines - Content Creation, Creative & Copy Writing, Digital/creative Marketing and Vlogging - motivated me to create this blog to share my thoughts and progress. In this space, I will share useful nuggets, my faith journey, fun stuff and ideas that I find intriguing, inspirational and beneficial to my audience. I am not a full time or a perfect writer but I promise to make this space a safe one and one worth your time. 
+My aspiration to hone my skills across different disciplines - Product design, Content Creation, Creative & Copy Writing, Digital/creative Marketing and Vlogging - motivated me to create this blog to share my thoughts and progress. In this space, I will share useful nuggets, my faith journey, fun stuff and ideas that I find intriguing, inspirational and beneficial to my audience. I am not a full time or a perfect writer but I promise to make this space a safe one and one worth your time. 
 
 ## **Contact**
 
